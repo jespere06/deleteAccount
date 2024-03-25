@@ -8,4 +8,4 @@ Aquí tienes una lista de pasos para eliminar la cuenta:
 6) Envía el correo electrónico a scribette.app@gmail.com.
 7) Una vez que Scribette reciba tu solicitud, eliminará manualmente tu cuenta y toda la información asociada, incluyendo apuntes, transcripciones, nombre y correo electrónico guardado.
 
-Recuerda que este proceso se realiza manualmente, así que puede llevar algún tiempo completarlo. Asegúrate de proporcionar toda la información necesaria para identificar tu cuenta y acelera el proceso de eliminación.
+Recuerda que este proceso se realiza manualmente, así que puede llevar algún tiempo completarlo. Asegúrate de proporcionar toda la información necesaria para identificar tu cuenta y acelerar el proceso de eliminación.
